@@ -10,6 +10,8 @@
  <img src="https://www.highventureplus.com/files/groups/Tharu-Festivals.jpg" height="200" weidth ="200">
  <img src="http://assets-cdn.ekantipur.com/images/third-party/miscellaneous/poem-1-30585524520_5386e21d70_b-copy-22092017081213.jpg" height="200" weidth ="200">
  
+ (Picture source:[1](https://www.nepalsanctuarytreks.com/wp-content/uploads/2018/05/Indra-jtra-festival-in-Nepal1.jpg)
+ 
  1.Natural Aspect
  
  
