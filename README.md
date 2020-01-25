@@ -2,5 +2,11 @@
  
  Nepal is a Himalayan country situated between India and China. This hidden paradise of world is welcoming everyone from all over the world with welcoming heart.
 
+## Things to do in Nepal
+ 1. Rafting
+ 2. climbing Everest
+ 3. Hospitality
+ 
+
  
 
