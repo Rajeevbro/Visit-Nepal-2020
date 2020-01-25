@@ -4,7 +4,7 @@
 
 ## Cultural Aspect:
  The long lived culture
- <img src="https://www.nepalsanctuarytreks.com/wp-content/uploads/2018/05/Indra-jtra-festival-in-Nepal1.jpg " width ="200" height="200"><img src="https://live.staticflickr.com/1859/30244419878_4291c7b364_b.jpg" height=200 weidth = 200>
+ <img src="https://www.nepalsanctuarytreks.com/wp-content/uploads/2018/05/Indra-jtra-festival-in-Nepal1.jpg " width ="200" height="200"><img src="https://live.staticflickr.com/1859/30244419878_4291c7b364_b.jpg" height="200" weidth = "200">
  
  
  
